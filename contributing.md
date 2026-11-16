@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Proxy para WhatsApp](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/proxy-para-whatsapp)
+[![Download Proxy para WhatsApp](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/B0ssBQaSewBT2g1c1)
 
 </div>
 
@@ -124,7 +124,7 @@
 
 <div align="center">
 
-[![Download Proxy para WhatsApp](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/proxy-para-whatsapp)
+[![Download Proxy para WhatsApp](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/B0ssBQaSewBT2g1c1)
 
 </div>
 
@@ -293,7 +293,7 @@ Usa WhatsApp sin bloqueos y de forma anónima gratis. **Proxy para WhatsApp – 
 
 <div align="center">
 
-[![Download Proxy para WhatsApp](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/proxy-para-whatsapp)
+[![Download Proxy para WhatsApp](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/B0ssBQaSewBT2g1c1)
 
 **Versión 3.2.0** — Herramienta gratuita de proxy para WhatsApp. Mayo 2026. Costo cero. Sin pagos.
 
